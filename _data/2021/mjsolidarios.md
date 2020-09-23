@@ -1,7 +1,7 @@
-emoji :v: y'all!
+emoji :stuck_out_tongue: 
 ***
 about_me
->  Hi I'm Mark, I like to code and do 3D graphics. I also do rice farming during growing seasons. Stay safe and keep on learning!
+>  Hola I'm Janne, I aspire to be a Network Admin one day. These days, I like to hangout in Cisco Networking Academy. Sometimes I play drums, computer games, and even Chess.
 
 hugot_lines/other_stuffs
-> "Never accept the world as it appears to be, dare to see it for what it could be" - Dr. Harold Winston, Overwatch.
+> "One day you'll leave this world behind,so live a life you will remember." - AVICII/ Tim Bergling.
