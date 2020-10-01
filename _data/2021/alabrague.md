@@ -2,7 +2,7 @@
       LETS GO!!!
 
 🗂️ABOUT ME: 
-    Ayo gals! APHRODITE ESTRULLO LABRAGUE here. 20 years wandering the world and living in the province where the mountains meet the sea, Province of Antique! A Business Analytics major of the degree, Bachelor in Science of Information System. Right now, this time of quarantine, I'm Plate Attendant major in Dishwashing. HAHAHAHAHAHA.
+    Ayo gals! APHRODITE ESTRULLO LABRAGUE here. 20 years wandering the world and living in the province where the mountains meet the sea, Province of Antique! A Business Analytics major of the degree, Bachelor of Science in Information System. Right now, this time of quarantine, I'm Plate Attendant major in Dishwashing. HAHAHAHAHAHA.
 An IG and shared posts FB geek; trying to find its peak. Quite inactive but responsive 😊 Nice to meet you! You're cool bruh 🤗 
 
 📸SNAPS:
